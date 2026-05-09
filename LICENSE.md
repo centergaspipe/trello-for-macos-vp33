@@ -1,4 +1,4 @@
-
+Trello for macOS ultimate Script: dark mode & voice notes offers the most advanced Trello for macOS script, with dark mode and voice notes. Ideal for professionals.
 
 
 
